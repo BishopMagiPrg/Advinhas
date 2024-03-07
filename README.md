@@ -17,6 +17,7 @@
 - Uma mao em cima da outra
 - Um inseto, preto com bolinhas vermelhas o que é?
 - Uma raposa...
+- O que é que dá muitas voltas e não sai do lugar?
 - Inseto?
 - Piriquito
 - Advinhas portuguesas para ti e para mim
