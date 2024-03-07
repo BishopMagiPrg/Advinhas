@@ -1,2 +1,2 @@
 # Advinhas
-Advinhas portuguesas
+Advinhas portuguesas para ti e para mim
