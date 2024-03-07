@@ -1,3 +1,18 @@
 # Advinhas
+
 Advinhas portuguesas
-o costa gosta de melao
+
+
+
+
+
+
+
+
+
+
+
+
+- O porque é que o mundo não tem cantos?
+- o costa gosta de melao
+
