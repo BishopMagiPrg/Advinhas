@@ -1,4 +1,5 @@
 # Advinhas
+
 ### Advinhas portuguesas 
 
 - Como é que se pesca peixe pela internet?
@@ -20,4 +21,5 @@
 - Piriquito
 - Advinhas portuguesas para ti e para mim
 - ola e adeus
+- O que é que tem 50 pernas e não anda?
 
