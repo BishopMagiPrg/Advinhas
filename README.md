@@ -1,3 +1,3 @@
 # Advinhas
 Advinhas portuguesas
-O ruas é gay 
+O porque é que o mundo não tem cantos?
